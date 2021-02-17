@@ -13,3 +13,5 @@ Recipie:
 12. wait 10 minutes and cut the plastic open anad trash it.
 13. take the rolled omelet and cut it into small pieces.
 14. last but not least! It's ready to serve! ;)
+
+PLEASE USE ADULT SUPERVISION USING SHARP OBJECTS AND NEAR HOT THINGS! :) Enjoy!
